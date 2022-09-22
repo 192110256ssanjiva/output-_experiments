@@ -25,3 +25,6 @@
 [EXPERIMEN­­_ex-8.docx](https://github.com/192110256ssanjiva/output-_experiments/files/9627214/EXPERIMEN._ex-8.docx)
 
 [EXPERIMENt_ex-7.docx](https://github.com/192110256ssanjiva/output-_experiments/files/9627217/EXPERIMENt_ex-7.docx)
+
+[EXPERIMEN­_exp-6.docx](https://github.com/192110256ssanjiva/output-_experiments/files/9627298/EXPERIMEN._exp-6.docx)
+
